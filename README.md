@@ -1,7 +1,5 @@
 ### Hola a todos 🤙
 
-**Osvaldo Hernández**.
-
 Gracias por visitar mi perfil :raising_hand_man:
 
 - 🎓 Estudiante del Instituto Tecnológico de Tijuana.
